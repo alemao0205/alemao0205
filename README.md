@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do matheus rodrigues😁
+## Bem-vindo(a) ao perfil do matheus rodrigues
 
  <div>
    <a href="https://github.com/alemao0205">
